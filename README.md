@@ -5,7 +5,8 @@
 - 📫 mail me at explorethemythwithomkar@gmail.com
 - 😄 Pronouns: He
 - ⚡ 💻 Code Alchemist |🌊 Aquatic Aficionado
-Merely chronicling the grand tapestry of existence. 📜✨
+- Merely chronicling the grand tapestry of existence. 📜✨
+
 
 <!---
 TheGoat0007/TheGoat0007 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
