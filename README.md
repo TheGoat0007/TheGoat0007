@@ -4,8 +4,7 @@
 - 💞️ I’m looking to collaborate on Coding Projects
 - 📫 mail me at explorethemythwithomkar@gmail.com
 - 😄 Pronouns: He
-- ⚡ 💻 Code Alchemist |🌊 Aquatic Aficionado
-- Merely chronicling the grand tapestry of existence. 📜✨
+
 
 
 <!---
